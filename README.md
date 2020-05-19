@@ -105,10 +105,10 @@ __Exit__ :
 [![m-wiz metasploit-franework tool](https://img.youtube.com/vi/8RXVODXMsa8/0.jpg)](https://youtu.be/8RXVODXMsa8)
 ## 馃敆 ***Check this***
 
-### Subscribe our channel on youtube:
+### Subscribe his channel on youtube:
 https://www.youtube.com/noobhackers
 
-### Chekout our webite:
+### Chekout their webite:
 https://www.noob-hackers.com
 
 ## 馃懃 ***Join***
@@ -128,7 +128,7 @@ https://www.instagram.com/noobhackers352
 ### Pinterest:
 https://in.pinterest.com/noobhackers
 
-### My GitHub ID link:
+### His GitHub ID link:
 https://www.github.com/noob-hackers
 
 ### 馃摙 Warning
